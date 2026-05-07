@@ -1,4 +1,4 @@
-
+Experience easter tap simulator like never before with stealth easter tap simulator Script, the #1 Script. Includes auto-collect and undetectable for
 
 
 
